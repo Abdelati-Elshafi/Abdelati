@@ -1,2 +1,2 @@
 # Abdelati
-coputer&amp;control systems Engineer
+computer&amp;control systems Engineer
